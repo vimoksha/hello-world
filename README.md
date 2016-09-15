@@ -1,3 +1,3 @@
 # hello-world
 no fuckin ideas for now
-I have a lto of nothing to say
+I have a lот of nothing to say
